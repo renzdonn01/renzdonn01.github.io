@@ -1,4 +1,3 @@
-# renzdonn01.github.io
 # GOOD DAY EVERYONE!!!
 Made by: Renz Donn A. Carpo (9-Gonzales B)
 
